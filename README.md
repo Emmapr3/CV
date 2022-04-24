@@ -10,4 +10,4 @@ Versión en Español: [EmmanuelParedesRocha.pdf](EmmanuelParedesRocha.pdf)
 
 English version: [EmmauelParedesRocha_AcademicCV.pdf](EmmauelParedesRocha_AcademicCV.pdf)
 
-Vernsión en Español: [EmmauelParedesRocha_CVAcademico.pdf](EmmanuelParedesRocha_CVAcademico.pdf)
+Versión en Español: [EmmauelParedesRocha_CVAcademico.pdf](EmmanuelParedesRocha_CVAcademico.pdf)
